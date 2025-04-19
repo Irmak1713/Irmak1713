@@ -1,7 +1,7 @@
 <h1 align="center">˗ˏˋ ★ ˎˊ˗ MERHABA !! 「 ✦ Fatma Irmak ✦ 」</h1>
 <h3 align="center">/ᐠ - ˕ -マ ᶻ 𝗓 𐰁</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=lrmak1713&label=Profile%20views&color=0e75b6&style=flat" alt="lrmak1713" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=lrmak1713&label=Profile%20views&color=0e75b8&style=flat" alt="lrmak1713" /> </p>
 
 
 
