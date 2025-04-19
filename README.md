@@ -1,4 +1,4 @@
-[![MasterHead](https://pin.it/4eFgkq3Pv)
+![MasterHead](https://github.com/CagatayAkkas/CagatayAkkas/blob/main/img/Github%20Banner.jpg)
 
 <h1 align="center">˗ˏˋ ★ ˎˊ˗ MERHABA !! 「 ✦ Fatma Irmak ✦ 」</h1>
 <h3 align="center">/ᐠ - ˕ -マ ᶻ 𝗓 𐰁</h3>
