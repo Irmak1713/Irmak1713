@@ -1,4 +1,4 @@
-![MasterHead](https://github.com/user-attachments/assets/2262e7b5-a0bc-412f-87fa-cacc343dac3d)
+![_where are we going__ Minecraft kitty (gif)](https://github.com/user-attachments/assets/424d4c42-1c21-453f-973c-69ac11936423)![MasterHead](https://github.com/user-attachments/assets/2262e7b5-a0bc-412f-87fa-cacc343dac3d)
 
 <h1 align="center">˗ˏˋ ★ ˎˊ˗ MERHABA !! 「 ✦ Ben Fatma Irmak ✦ 」</h1>
 <h3 align="center">/ᐠ - ˕ -マ ᶻ 𝗓 𐰁</h3>
@@ -6,7 +6,12 @@
 ![MasterHead](https://github.com/user-attachments/assets/01d9af1d-f9dc-4620-a929-ea3932f914b6)
 
 
+
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lrmak1713&label=Profile%20views&color=0e75b8&style=flat" alt="lrmak1713" /> </p>
+
+<img src="https://github.com/user-attachments/assets/e56cb777-6e28-414a-9154-d2accc40cc34" alt="Coding" width=200 height=200 align="right">
+
+
 
 
 
