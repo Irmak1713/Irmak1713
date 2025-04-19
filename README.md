@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/e56cb777-6e28-414a-9154-d2accc40cc34" alt="Coding" width=200 height=200 align="right">
+<img src="https://github.com/user-attachments/assets/e56cb777-6e28-414a-9154-d2accc40cc34" alt="Coding" width=100 height=100 align="centre">
 
 ![MasterHead](https://github.com/user-attachments/assets/2262e7b5-a0bc-412f-87fa-cacc343dac3d)
 
