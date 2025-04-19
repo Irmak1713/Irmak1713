@@ -5,7 +5,7 @@
  
 ![MasterHead](https://github.com/user-attachments/assets/01d9af1d-f9dc-4620-a929-ea3932f914b6)
 
-<img src="(https://github.com/user-attachments/assets/e56cb777-6e28-414a-9154-d2accc40cc34)" alt="Coding" width=200 height=200 align="right">
+<img src="https://github.com/user-attachments/assets/e56cb777-6e28-414a-9154-d2accc40cc34" alt="Coding" width=200 height=200 align="right">
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lrmak1713&label=Profile%20views&color=0e75b8&style=flat" alt="lrmak1713" /> </p>
