@@ -3,7 +3,8 @@
 <h1 align="center">˗ˏˋ ★ ˎˊ˗ MERHABA !! 「 ✦ Ben Fatma Irmak ✦ 」</h1>
 <h3 align="center">/ᐠ - ˕ -マ ᶻ 𝗓 𐰁</h3>
 
-![MasterHead](https://pin.it/1JjUXcnSg)
+![MasterHead](https://github.com/user-attachments/assets/01d9af1d-f9dc-4620-a929-ea3932f914b6)
+
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lrmak1713&label=Profile%20views&color=0e75b8&style=flat" alt="lrmak1713" /> </p>
 
