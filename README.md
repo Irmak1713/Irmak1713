@@ -29,7 +29,7 @@
 
 
 
-🎮 Wanna play with my cat? 👉 [Feed the Cat!](https://kullanici-adin.github.io/feed-the-cat)
+🎮 Wanna play with my cat? 👉 [Feed the Cat!](https://Irmak1713.github.io/feed-the-cat)
 
 
 
