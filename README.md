@@ -29,7 +29,7 @@
 
 
 
-🎮 Wanna play with my cat? 👉 [Feed the Cat!](https://Irmak1713.github.io/feed-the-cat)
+🎮 KEDİMİ BESLEMEK İSTER MİYDİN? 👉 [Feed the Cat!](https://Irmak1713.github.io/feed-the-cat)
 
 
 
