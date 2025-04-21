@@ -29,8 +29,9 @@
 
 
 
-🎮 KEDİMİ BESLEMEK İSTER MİYDİN? 👉 [Feed the Cat!](https://Irmak1713.github.io/feed-the-cat)
+🎮 KEDİMİ BESLEMEK İSTER MİYDİN? 👉 [Feed the Cat!](https://Irmak1713.github.io/feed-the-cat) //kodlarbanaaittir
 
+🌌  Gökyüzünden yıldız topla! ⭐🖱️ [Catch the Stars!](https://Irmak1713.github.io/catch-the-stars) //kodlarbanaaittir
 
 
 
