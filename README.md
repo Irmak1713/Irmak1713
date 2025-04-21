@@ -35,7 +35,7 @@
 
 
 
-🎮 [Cat Parkour Adventure](https://kullaniciadın.github.io/pop-the-balloons/) – Zıpla, balık topla, level atla! 😻🍣
+🎮 [Cat Parkour Adventure](https://irmak1713.github.io/pop-the-balloons/) – Zıpla, balık topla, level atla! 😻🍣
 
 
 
