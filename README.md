@@ -33,7 +33,7 @@
 
 🌌 Gökyüzünden yıldız topla! ⭐🖱️ [Catch the Stars!](https://irmak1713.github.io/catch-the-stars/) – 
 
-🎈  Renkli balonları patlat! 🎯 [Pop the Balloons!](https://irmak1713.github.io/pop-the-balloons) –
+🏃‍♀️ [Cat Parkour Adventure](https://irmak1713.github.io/cat-parkour) – Platformları geç, balıkları kap! 😸🍣//kodbanaaittir
 
 
 
